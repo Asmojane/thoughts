@@ -13,29 +13,36 @@
 
 # Relativité et interdépendance : la rencontre des multivers individuels
 
-L'idée que chaque individu perçoit la réalité différemment n'est pas juste une intuition ou une métaphore. C'est une réalité : **il existe autant d'univers que de spectateurs**. À chaque moment, **ma réalité n'est que le résultat de mon interprétation**, façonnée par mes expériences, mes pensées, et mes croyances. Et lorsque nos univers se rencontrent, la réalité neutre n'existe pas, elle n'est jamais figée ou objective.
+L'idée que chaque individu perçoit la réalité différemment est bien plus qu’une intuition ou une métaphore : il existe autant d'univers que de spectateurs. Ma réalité est le produit de mon interprétation, façonnée par mes expériences, pensées et croyances. Quand nos univers se rencontrent, une réalité neutre n’existe pas ; elle est toujours en mouvement, subjective et malléable.
 
-C'est comme lorsque **le jaune de ma vision rencontre le rouge de la tienne** : le **orange** qui en résulte n'existe que parce que nous avons été obligés de trouver un terrain d'entente. Ce compromis ne concerne pas seulement nos perceptions immédiates, mais s'étend à **toutes nos interactions**, qu'elles soient physiques, émotionnelles ou spirituelles.
+C’est comme lorsque le **jaune** de ma vision rencontre le **rouge** de la tienne : le **orange** qui en résulte naît du compromis, un terrain d’entente entre nos perceptions. Ce compromis dépasse les sens immédiats pour s’étendre à toutes nos interactions physiques, émotionnelles ou spirituelles.
+
+---
 
 ## Le compromis : une réalité physique et spirituelle
 
-Ce compromis, ce mélange de perceptions, est à la fois **concret** et **éphémère**. Il est **physique** parce que nous sommes constamment amenés à interagir avec les autres, à confronter nos points de vue, et à adapter notre comportement en fonction de ce que nous percevons de l'autre. Mais il est aussi **spirituel** : c’est l’idée que **ma vérité**, aussi absolue qu’elle me paraisse, ne peut jamais exister de manière isolée. **Elle doit entrer en collision avec la tienne**, et ensemble, nous créons une **réalité partagée**, qui n'est ni totalement la tienne ni totalement la mienne.
+Ce compromis est à la fois concret et éphémère. Il est **physique** parce que nous ajustons constamment nos comportements en fonction de l’autre. Mais il est aussi **spirituel** : ma vérité, aussi absolue qu’elle me semble, n’existe pas seule. Elle rencontre la tienne pour créer une réalité partagée, ni totalement tienne, ni totalement mienne.
 
-Ce compromis est un **processus dynamique**, un perpétuel ajustement entre différentes vérités, chacune étant façonnée par son propre contexte. **Le orange** n'est pas un simple mélange statique ; c'est un **terrain d'échange**, un lieu où nos vérités doivent coexister sans jamais s'effacer entièrement.
+Ce processus dynamique est un ajustement perpétuel entre différentes vérités. Le **orange** n’est pas une fusion statique, mais un espace d’échange où nos réalités coexistent sans s’annuler.
 
-En d'autres termes, **la réalité que nous expérimentons n'est pas neutre**. Elle est le fruit de nos interactions, de nos confrontations, et de nos ajustements. Chaque moment de notre vie est un échange entre plusieurs univers, et le résultat est un compromis, un **"orange" éphémère**, qui ne pourrait exister sans **le jaune de ma perception** et **le rouge de la tienne**.
+La réalité que nous vivons est donc le fruit de nos **interactions**, **confrontations** et **ajustements**. Chaque moment est une rencontre entre univers individuels qui produit un compromis, un "orange" éphémère, façonné par le jaune de ma perception et le rouge de la tienne.
 
-## Explorer comment chaque personne co-crée une réalité unique en fonction de son propre univers intérieur
+---
 
-Chaque personne vit dans son propre **univers intérieur**, et cet univers n’est pas juste une impression vague ou abstraite. C’est une réalité tangible : **il existe autant d’univers que de spectateurs**. Ma perception du monde n'est pas neutre, elle est façonnée par tout ce que j’ai vécu, tout ce que je crois, et tout ce que je ressens. **Je crée constamment ma réalité**, non pas de manière isolée, mais en fonction de ce prisme unique qui m'appartient.
+## Co-créer une réalité unique à partir de nos univers intérieurs
 
-Quand je regarde le monde, je ne vois pas simplement des faits objectifs ou des vérités universelles. **Je vois un univers que j’ai construit**, filtré par mes expériences, mes émotions, et mes croyances. Chacun de nous fait cela, chacun de nous a son propre univers intérieur qui coexiste avec ceux des autres. Alors, quand nos univers se rencontrent, ce n’est pas un mélange homogène, mais une **collision de perspectives**, une rencontre qui produit un compromis, quelque chose de **nouveau et d’éphémère**.
+Chaque personne évolue dans son propre **univers intérieur**. Cette réalité n’est pas abstraite : elle est tangible, façonnée par nos expériences, croyances et émotions. Ma perception du monde est un filtre unique qui me façonne en retour.
 
-### L'univers intérieur comme filtre de perception
+Quand je regarde le monde, je ne vois pas des faits bruts ou des vérités universelles, mais une réalité filtrée par mon vécu. Chacun de nous construit ainsi son univers intérieur. Lorsque ces univers se rencontrent, ils ne se mélangent pas uniformément mais entrent en collision, produisant un compromis éphémère.
 
-Tout ce que je perçois passe à travers mon **filtre interne**. Ce que j’ai vécu, ce que je crois être vrai, ce que je ressens à l’instant précis : tout cela influence ma façon de voir le monde. **Ma perception est une projection**, une sorte de miroir déformant qui me montre une version du monde qui n’existe que pour moi. Et c’est pareil pour toi, pour chaque personne. **Ce que tu vois**, ce que tu ressens, c’est ta propre version de la réalité.
+---
 
-Les interactions humaines sont donc une rencontre de ces univers intérieurs. **Quand je parle avec toi**, ce n’est pas juste une conversation, c’est un **échange de réalités**. Ta perception influence la mienne, et vice-versa, mais cela ne crée pas une vérité neutre ou objective. **Ce que nous créons ensemble** est un compromis, une nouvelle réalité temporaire. Un peu comme le **orange** qui naît de la rencontre de **mon jaune** et de **ton rouge** : ce orange n’existe que parce que nos deux univers se sont rencontrés à cet instant précis.
+## L'univers intérieur comme filtre de perception
+
+Tout passe à travers mon **filtre interne** : mes souvenirs, croyances et ressentis influencent ma vision du monde. Ma perception est une projection unique, un miroir déformant qui crée ma version de la réalité. Il en va de même pour toi.
+
+Les interactions humaines sont des échanges entre ces univers. Chaque conversation est une rencontre de réalités où nos perceptions s’influencent mutuellement. Ensemble, nous créons une réalité temporaire, semblable au **orange** qui résulte de la rencontre de mon jaune et de ton rouge.
+
 
 <img src="https://jane-mathieu.fr/img/univers24.png" alt="Univers" width="350" height="311">
 
