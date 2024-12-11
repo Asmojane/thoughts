@@ -1,14 +1,14 @@
 # Introduction
 
-Le réel est relatif et dépend de l’observateur.
-
-Il n’y a pas de réalité unique, mais autant de réalités que d’observateurs. Chaque individu vit dans un univers façonné par ses perceptions, ses croyances et ses expériences. Nos mondes personnels n’acquièrent de consistance que lorsqu’ils se rencontrent, produisant ainsi une sorte de compromis entre différentes perspectives. Ce compromis n’est jamais fixe : il évolue au gré des interactions, ajustant sans cesse notre vision de la réalité.
-
-## Relativité et interdépendance : la rencontre des multivers individuels
-
-Chaque individu perçoit le monde selon son propre prisme. Ainsi, aucune réalité neutre n’existe ; tout est subjectif et malléable. Lorsque nos univers se rencontrent, l’image commune formée est un compromis, une teinte résultant de la confrontation de nos visions.
-
-Ce processus n’est pas purement sensoriel. Il s’étend à toutes nos interactions, qu’elles soient physiques, émotionnelles ou spirituelles.
+> *Le réel est relatif et dépend de l’observateur.*
+>
+> *Relativité et interdépendance des éléments*
+>
+> *Il n’y a pas de réalité unique. Il y a autant de mondes et de réalités qu’il y a d’observateurs. Chaque individu vit dans son propre univers, façonné par ses perceptions, ses croyances, ses expériences. Le monde que je perçois n’est pas le même que le tien, et ces univers personnels n’ont de consistance que lorsqu’ils entrent en collision, lorsqu’ils interagissent les uns avec les autres.*
+>
+> *Ce concept se relie directement à l’idée que le réel est infini. Ce que nous appelons « le réel » n’est en fait qu’un compromis entre toutes les perspectives. La réalité n’existe que parce que nos mondes s’entrechoquent, et que nous parvenons à trouver une sorte de terrain d’entente entre nos perceptions divergentes.*
+>
+> *Dans cette optique, l’observateur crée la réalité. Ce que nous voyons et percevons dépend entièrement du contexte dans lequel nous nous trouvons. Cela signifie qu’il n’y a pas de réalité « objective » qui existerait en dehors de l’interaction entre l’individu et son environnement.*
 
 ## Le compromis : une réalité physique et spirituelle
 
@@ -22,7 +22,8 @@ Chacun évolue dans son propre univers intérieur, façonné par ses expérience
 
 Mes croyances, mes souvenirs et mes ressentis influencent ma vision du monde, tout comme les tiens. Nos perceptions ne sont jamais isolées : chaque échange est une rencontre de filtres qui se transforment mutuellement, créant une réalité temporaire et partagée.
 
-![Univers](https://jane-mathieu.fr/img/univers24.png)
+<img src="https://jane-mathieu.fr/img/univers24.png" alt="Univers" width="350" height="311">
+> (Notons que je ne crois pas en l’existence du jaune et du rouge. Il me semble qu’il n’existe que les univers en collision, juste les teintes orange vert etc.)
 
 ### Un compromis en mouvement
 
