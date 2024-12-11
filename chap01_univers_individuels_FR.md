@@ -53,7 +53,3 @@ La mécanique quantique montre que l’acte d’observer modifie ce qui est obse
 Nous ne sommes pas des entités figées. Chaque interaction, chaque contexte, produit une nouvelle facette de nous-mêmes. Il y a autant de versions de notre identité que de relations, autant de réalités que d’interactions. Les énergies que nous déployons pour maintenir une cohérence interne préservent l’illusion d’une continuité. Nos souvenirs, notre moralité, nos sens agissent comme des filtres, renforçant l’idée d’une identité stable, alors même que nous nous adaptons sans cesse.
 
 Notre personnalité fluctue avec l’environnement, et cela ne fait pas de nous des êtres inconstants, mais des systèmes adaptatifs. Nous croyons connaître notre personnalité et nos convictions, mais ces repères peuvent se modifier lorsque nous rencontrons d’autres perceptions. Cette multiplicité n’est pas une faiblesse, mais un fait intrinsèque de notre existence.
-
-### L’unicité : une illusion ?
-
-Sommes-nous uniques ? Si nous dépendons des autres pour façonner notre identité, cette singularité n’est-elle pas une construction ? Nous ne sommes pas une couleur figée, mais un mélange changeant de nuances. Chacun est un compromis permanent entre soi et autrui, un être en constant devenir.
