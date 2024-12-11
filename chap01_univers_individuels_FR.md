@@ -23,7 +23,8 @@ Chacun évolue dans son propre univers intérieur, façonné par ses expérience
 Mes croyances, mes souvenirs et mes ressentis influencent ma vision du monde, tout comme les tiens. Nos perceptions ne sont jamais isolées : chaque échange est une rencontre de filtres qui se transforment mutuellement, créant une réalité temporaire et partagée.
 
 <img src="https://jane-mathieu.fr/img/univers24.png" alt="Univers" width="350" height="311">
-> (Notons que je ne crois pas en l’existence du jaune et du rouge. Il me semble qu’il n’existe que les univers en collision, juste les teintes orange vert etc.)
+
+> *(Notons que je ne crois pas en l’existence du jaune du bleu et du rouge. Il me semble qu’il n’existe que les univers en collision, juste les teintes orange vert etc.) d'ou la perception "du monde" en événements plutot qu'en objets* 
 
 ### Un compromis en mouvement
 
