@@ -22,7 +22,7 @@ Each person evolves within their own inner universe, shaped by their experiences
 
 My beliefs, memories, and feelings influence how I see the world, just as yours influence you. Our perceptions are never isolated: every exchange is a meeting of filters that transform each other, creating a temporary, shared reality.
 
-<img src="https://jane-mathieu.fr/img/univers24.png" alt="Univers" width="350" height="311">
+<img src="https://jane-mathieu.fr/OLD/img/univers24.png" alt="Univers" width="350" height="311">
 
 > *(Note that I do not believe in the existence of yellow, blue, or red. It seems to me that there are only universes in collision, just shades of orange, green, and so forth. Hence, the perception of “the world” as a series of events rather than as objects.)*
 
